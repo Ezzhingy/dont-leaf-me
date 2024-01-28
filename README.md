@@ -1,4 +1,4 @@
-# Don't Leaf Me 🍃
+# Don't Leaf Me! 🍃
 Best Productivity Hack @ DeltaHacks X
 
 ## 💡Inspiration
